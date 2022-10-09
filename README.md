@@ -1,4 +1,5 @@
-Hi, I’m @Th3-duck
+Hi, I’m @AugmentedDuck
+
 I make projects both for fun and for school
 
 How to reach me:
